@@ -1,5 +1,6 @@
 # ReadMe
 ### 
-I will send you google meet url. Just wait a second.
+skype id ---> live:.cid.ae722d9715ea1ab1
+
 
 
